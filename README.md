@@ -1,2 +1,2 @@
-# lalu se bachna hai.
+tumarre liye dip jalte hai.
 deepak se jale diye.
